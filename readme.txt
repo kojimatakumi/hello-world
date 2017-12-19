@@ -6,3 +6,7 @@ Hello world world
 
 SANGOSHITOU Erythrina x bidwillii
 This photograph was taken on the promenade near my house.
+
+2017.12.19
+
+散歩-西荻コースに出かけた。
